@@ -1,2 +1,1 @@
 - 👋 Hi, I’m @Fautherdtd
-- 👀 I’m Team Lead in TrinityMonsters
